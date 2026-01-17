@@ -1,4 +1,4 @@
-<img width="674" height="311" alt="image-f3c2-gradientmap pro" src="https://github.com/user-attachments/assets/e5c07b4a-1c3f-4e8c-bc5c-8b68fb070827" />
+<img width="478" height="255" alt="image-4da2-gradientmap pro" src="https://github.com/user-attachments/assets/a56f94fd-5c74-4135-80de-aa7dcb356aa7" />
 
 
 ---------------------------------------------------------------------------------------------
