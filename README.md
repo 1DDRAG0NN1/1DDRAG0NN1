@@ -8,7 +8,7 @@
 ---------------------------------------------------------------------------------------------
 ɴᴏᴛ ᴏɴ ᴘᴏɴʏᴛᴏᴡɴ ᴛᴏᴏ ᴏꜰᴛᴇɴ! ʙᴜᴛ ɪᴍ ᴍᴏꜱᴛʟʏ ᴀᴛ ʙᴀᴋᴇʀʏ ᴏʀ ᴀʙᴏᴠᴇ ɪᴛ (ʜꜱʀ + ɢɪ ꜱᴘᴏᴛ)
 
-ʜᴏɴᴇꜱᴛʟʏ ɴᴏᴛʜɪɴɢ ʙᴏᴛʜᴇʀꜱ ᴍᴇ ɴɢʟ (ʙᴜᴛ ᴅᴏɴᴛ ʙᴇ ᴀ ᴄʀᴇᴇᴘ) ᴊᴜꜱᴛ ᴀꜱᴋ ʙᴇꜰᴏʀᴇ ᴄᴜᴅᴅʟɪɴɢ! ʙᴜᴛ ᴅᴏɴᴛ ᴄᴏᴠᴇʀ/ʜɪᴅᴇ ᴍʏ ᴘᴏɴʏ ᴡɪᴛʜ ᴜʀꜱ
+ʜᴏɴᴇꜱᴛʟʏ ɴᴏᴛʜɪɴɢ ʙᴏᴛʜᴇʀꜱ ᴍᴇ ɴɢʟ (ʙᴜᴛ ᴅᴏɴᴛ ʙᴇ ᴀ ᴄʀᴇᴇᴘ) ᴊᴜꜱᴛ ᴀꜱᴋ ʙᴇꜰᴏʀᴇ ᴄᴜᴅᴅʟɪɴɢ! ᴜɴʟᴇꜱꜱ ꜱᴘᴇᴄɪꜰɪᴇᴅ ᴏᴛʜᴇʀᴡɪꜱᴇ ᴡɪᴛʜ ᴄ+ʜ ɪɴ ᴍʏ ɴᴀᴍᴇ. ʙᴜᴛ ᴅᴏɴᴛ ᴄᴏᴠᴇʀ/ʜɪᴅᴇ ᴍʏ ᴘᴏɴʏ ᴡɪᴛʜ ᴜʀꜱ
 
 ---------------------------------------------------------------------------------------------
 
@@ -49,12 +49,14 @@ Im very energetic once you mention my intrests! (<-view strawpage)
 
 appoligies if i get quiet or dry after a while, i dislike like *super long* convos.
 
-im not the best at starting conversations or going up to people.
+im not the best at starting conversations or going up to people!. so please mention something first if you want to talk! id love too ^_^
+
+(if im not busy ⬏ )
 
 
-**i dont roleplay.**
+**Please dont randomly roleplay with me.**
 
-⁽ᵒᶠᵗᵉⁿ?? ⁱ ʰᵃᵛᵉⁿᵗ ⁱⁿ ᵃᵍᵉˢ ᵃⁿᵈ ⁱᵗ ˡᵒʷᵏᵉʸ ᶜʳⁱⁿᵍᵉˢ ᵐᵉ ᵒᵘᵗ ʷʰᵉⁿ ˢᵒᵐᵉᵒⁿᵉ ʳᵃⁿᵈᵒᵐˡʸ ʳᵒˡᵉᵖˡᵃʸˢ ˢᵒʳʳʸ!!⁾
+UNLESS FOR A JOKE!!!!!!
 
 ---------------------------------------------------------------------------------------------
 
