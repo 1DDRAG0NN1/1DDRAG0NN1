@@ -52,6 +52,8 @@ Im very energetic once you mention my intrests! (<-view strawpage)
 
 appoligies if i get quiet or dry after a while, i dislike like *super long* convos.
 
+if your already with someone i likeley wont go up to you first if i dont know them!! please leme know if okay or not to 😓😓
+
 im not the best at starting conversations or going up to people!. so please mention something first if you want to talk! id love too ^_^
 
 (if im not busy ⬏ )
