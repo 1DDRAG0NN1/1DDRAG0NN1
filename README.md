@@ -1,8 +1,8 @@
 <sub>Art credits, all on X(twitter) : @seiren_HS . @trx_37 . @azsxstar
 
-<img width="900" height="790" alt="IMG_2354" src="https://github.com/user-attachments/assets/e86b713e-10f7-4b05-8001-b207ee774067" />
+<img width="800" height="690" alt="IMG_2354" src="https://github.com/user-attachments/assets/e86b713e-10f7-4b05-8001-b207ee774067" />
 
-<img width="890" height="100" alt="tumblr_a1fda0255687c55a3c18ae6683bf86f0_b45e44a0_1280" src="https://github.com/user-attachments/assets/413c1536-0005-49f6-ae1c-5709e0dbf5ad" />
+<img width="800" height="100" alt="tumblr_a1fda0255687c55a3c18ae6683bf86f0_b45e44a0_1280" src="https://github.com/user-attachments/assets/413c1536-0005-49f6-ae1c-5709e0dbf5ad" />
 ‎
 
 <sub>[Before you interact.](https://avensbyi.straw.page)</sub> <img width="20" height="20" alt="9sfqg2" src="https://github.com/user-attachments/assets/2183fcd8-86af-47d0-a6a8-b75bd6f27ff4" /> ‿︵‿︵
@@ -13,7 +13,7 @@
 <p align="center">
 <img width="200" height="200" alt="IMG_2269" src="https://github.com/user-attachments/assets/091f378f-fc2d-411e-8b8a-5d9a0c7cbb17" />
 </p>
-<img width="890" height="150" alt="deep-ocean" src="https://github.com/user-attachments/assets/f8f6f499-33db-4e71-a12f-ea609508e1af" />
+<img width="800" height="150" alt="deep-ocean" src="https://github.com/user-attachments/assets/f8f6f499-33db-4e71-a12f-ea609508e1af" />
 
 > [!CAUTION]
 > HAZBIN HOTEL + HELUVA BOSS + VIZIEPOP AVID FANS / ROLEPLAY / 13- 19+ <- Do not interact please<img width="20" height="20" alt="IMG-0807" src="https://github.com/user-attachments/assets/b97e334b-da2e-405f-a795-a44e835f85d4" />
