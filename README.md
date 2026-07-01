@@ -1,6 +1,6 @@
 <sub>Art credits, all on X(twitter) : @seiren_HS . @trx_37 . @azsxstar
 
-<img width="690" height="800" alt="IMG_2354" src="https://github.com/user-attachments/assets/e86b713e-10f7-4b05-8001-b207ee774067" />
+<img width="900" height="790" alt="IMG_2354" src="https://github.com/user-attachments/assets/e86b713e-10f7-4b05-8001-b207ee774067" />
 
 <img width="890" height="100" alt="tumblr_a1fda0255687c55a3c18ae6683bf86f0_b45e44a0_1280" src="https://github.com/user-attachments/assets/413c1536-0005-49f6-ae1c-5709e0dbf5ad" />
 ‎
