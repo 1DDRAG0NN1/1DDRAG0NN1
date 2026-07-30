@@ -1,3 +1,6 @@
+<sub>[Ata](https://avensbyi.straw.page)</sub> <img width="20" height="20" alt="9sfqg2" src="https://github.com/user-attachments/assets/96bc9145-677c-487b-a5df-4f93f151eb3e"/>
+"
+
 <sub>Art credits, all on X(twitter) : @seiren_HS . @trx_37 . @azsxstar . @sin__82
 
 <img width="800" height="690" alt="IMG_2354" src="https://github.com/user-attachments/assets/e86b713e-10f7-4b05-8001-b207ee774067" />
