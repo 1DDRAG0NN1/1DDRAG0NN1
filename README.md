@@ -21,4 +21,4 @@
 <img width="800" height="150" alt="deep-ocean" src="https://github.com/user-attachments/assets/f8f6f499-33db-4e71-a12f-ea609508e1af" />
 
 > [!CAUTION]
-> HAZBIN HOTEL + HELUVA BOSS + VIZIEPOP AVID FANS / ROLEPLAY / 13- 19+ <- Do not interact please<img width="20" height="20" alt="IMG-0807" src="https://github.com/user-attachments/assets/b97e334b-da2e-405f-a795-a44e835f85d4" />
+> HAZBIN HOTEL + HELUVA BOSS + VIZIEPOP AVID FANS / 13- 19+ <- Do not interact please <img width="20" height="20" alt="IMG-0807" src="https://github.com/user-attachments/assets/b97e334b-da2e-405f-a795-a44e835f85d4" /> Also please dont try to roleplay with me unprompted!
