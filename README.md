@@ -1,4 +1,4 @@
-<sub>[Ata (oops link was messed up before i fixed it okay)]([https://avensbyi.straw.page](https://github.com/mersaultgirlies))</sub> <img width="50" height="50" alt="9sfqg2" src="https://github.com/user-attachments/assets/96bc9145-677c-487b-a5df-4f93f151eb3e"/>
+<sub>[Ata . oops link was messed up before i fixed it okay]([https://avensbyi.straw.page](https://github.com/mersaultgirlies))</sub> <img width="50" height="50" alt="9sfqg2" src="https://github.com/user-attachments/assets/96bc9145-677c-487b-a5df-4f93f151eb3e"/>
 
 
 <sub>Art credits, all on X(twitter) : @seiren_HS . @trx_37 . @azsxstar . @sin__82
