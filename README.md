@@ -16,8 +16,8 @@
 <img width="20" height="20" alt="z6vkr2" src="https://github.com/user-attachments/assets/b32f8777-0dc9-4806-af46-536c8485ed17" />  [All socials](https://guns.lol/ddrag0nn)
 
 <p align="center">
-<img width="200" height="200" alt="IMG_2269" src="https://github.com/user-attachments/assets/091f378f-fc2d-411e-8b8a-5d9a0c7cbb17" />
-</p>
+<img width="426" height="240" alt="WAVENSPLASH" src="https://github.com/user-attachments/assets/70b1a536-a41a-4a6d-88c8-c35ba00b249f" />
+
 <img width="800" height="150" alt="deep-ocean" src="https://github.com/user-attachments/assets/f8f6f499-33db-4e71-a12f-ea609508e1af" />
 
 > [!CAUTION]
